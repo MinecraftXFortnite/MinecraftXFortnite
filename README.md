@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MinecraftXFortnite
+- 👀 I’m interested in finding mods & people to play both fortnite & mminecraft with & on
+- 🌱 I’m currently learning nothing causes its summer :D
+- 📫 How to reach me discord or gmail most likey gmail tho
+- ⚡ Fun fact: I touch grass
